@@ -9,4 +9,4 @@ Download the updated 2025 JJSploit Executor for Roblox. Enhance your gameplay wi
 - 🎯 **New Features**: The latest version comes with added features that enhance functionality and user experience.
 - 🔧 **User-Friendly Interface**: Simple, intuitive interface makes it easy to use for both beginners and experts.
   
-![jjsploit](https://i.resm.im/LXLWseA.jpg)
+![jjsploit](https://i.resm.im/kKarA9u.jpg)
